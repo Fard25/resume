@@ -1,4 +1,4 @@
 # resume
 Francesca A
 
-A brief description of this project and instructions
+A brief description of this project and instructions...
