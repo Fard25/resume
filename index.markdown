@@ -10,12 +10,6 @@ Friendly, reliable, and hardworking individual with experience in coaching, cust
 **Graphic Design, Advanced Diploma**  
 September 2025 – Present
 
-### St. Elizabeth Catholic High School, Thornhill, Ontario
-**Ontario Secondary School Diploma (OSSD)**  
-September 2021 – June 2025  
-- Honour Roll
-- Ontario Scholar
-
 ## Experience
 
 ### Canadian Tire
