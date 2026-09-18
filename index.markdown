@@ -12,6 +12,11 @@ Creative and reliable Graphic Design student with a strong interest in visual co
 
 ---
 
+## Project
+
+<a href="
+
+
 ## Education
 
 ### Humber Polytechnic | Etobicoke, Ontario
@@ -43,7 +48,7 @@ September 2025 – Present
 
 ---
 
-## Creative & Community Experience
+## Community Experience
 
 ### Down Syndrome Association of York Region
 **Volunteer | 2019 – Present**
