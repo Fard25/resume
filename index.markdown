@@ -65,19 +65,18 @@ September 2025 – Present
 
 - Visual Communication
 - Typography & Layout
+- Adobe Photoshop
+- Adobe Illustrator
+- Figma
 - Creative Problem-Solving
 - Attention to Detail
-- Organization & Time Management
-- Teamwork & Collaboration
-- Customer Service
-- Communication
 
 ---
 
 ## Extracurricular
 
 ### Humber Women's Soccer Team
-**Player | September 2025 – Present**
+**Soccer Player | September 2025 – Present**
 
 ### Vaughan Soccer Club
 **Soccer Player | 2012 – August 2026**
