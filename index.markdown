@@ -90,9 +90,9 @@ September 2025 – Present
 
 ## Achievements
 
-- **All-Rookie Team**, Humber Women's Varsity Soccer | 2025
-- **Honour Roll**, Humber Polytechnic | 2025
-- **Most Sportsmanship Player Award**, Varsity Soccer | 2024
+**All-Rookie Team**, Humber Women's Varsity Soccer | 2025
+**Honour Roll**, Humber Polytechnic | 2025
+**Most Sportsmanship Player Award**, Varsity Soccer | 2024
 
 ---
 
