@@ -14,7 +14,7 @@ Creative and reliable Graphic Design student with a strong interest in visual co
 
 ## Project
 
-![Pacman Website](Pacman.png)
+![Pacman Website](Pac-man.png)
 
 ---
 
