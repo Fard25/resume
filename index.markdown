@@ -38,15 +38,8 @@ July 2021 – July 2025
 ## Extracurricular Activities
 
 ### Humber Women's Soccer Team
-**Player**  
-September 2025 – Present
-
-### Vaughan Soccer Club
 **Soccer Player**  
-2012 – August 2026
-- Developed strong teamwork and communication skills
-- Built positive relationships with teammates and coaches
-- Strengthened time management and problem-solving skills
+September 2025 – Present
 
 ## Skills
 
