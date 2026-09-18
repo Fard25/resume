@@ -1,63 +1,92 @@
 # Francesca Arduini
 
+**Graphic Design Student | Creative & Detail-Oriented**
+
+---
+
 ## About Me
 
-Friendly, reliable, and hardworking individual with experience in coaching, customer service, and community involvement. Strong communication, teamwork, and organizational skills with a positive attitude and willingness to learn.
+Creative and reliable Graphic Design student with a strong interest in visual communication, branding, and creative problem-solving. Experienced in customer service, teamwork, and working in fast-paced environments. Organized, adaptable, and eager to develop professional design experience.
+
+---
 
 ## Education
 
-### Humber Polytechnic, Etobicoke, Ontario
-**Graphic Design, Advanced Diploma**  
+### Humber Polytechnic | Etobicoke, Ontario
+**Graphic Design – Advanced Diploma**  
 September 2025 – Present
+
+- Developing skills in visual communication, typography, layout, and design
+- Building creative projects through hands-on design assignments
+
+---
 
 ## Experience
 
 ### Canadian Tire
-**Cashier**  
-2026 – Present
-- Provide friendly and efficient customer service
-- Process customer purchases and payments accurately
-- Work effectively in a busy team environment
+**Cashier | 2026 – Present**
+
+- Provide friendly and professional customer service
+- Process transactions accurately in a fast-paced environment
+- Communicate effectively with customers and team members
+- Maintain an organized and welcoming checkout area
 
 ### Vaughan Soccer Club
-**Soccer Coach**  
-July 2021 – July 2025
-- Created and led soccer drills to develop players' skills
-- Encouraged teamwork and sportsmanship
-- Instructed players and helped develop game plans
+**Soccer Coach | July 2021 – July 2025**
 
-## Community Involvement
+- Created and organized visual and activity-based drills
+- Communicated instructions clearly to players
+- Developed teamwork and leadership skills
+- Planned activities while adapting to different skill levels
+
+---
+
+## Creative & Community Experience
 
 ### Down Syndrome Association of York Region
-**Volunteer, Buddy Walk & Picnic**  
-2019 – Present
-- Assisted with organizing annual community events
-- Managed registration tables and welcome packages
-- Helped with raffle prizes and ticket sales
+**Volunteer | 2019 – Present**
 
-## Extracurricular Activities
+- Assisted with planning and organizing community events
+- Designed and decorated raffle prizes
+- Helped create welcoming and organized event displays
+- Assisted with registration and guest communication
 
-### Humber Women's Soccer Team
-**Soccer Player**  
-September 2025 – Present
+---
 
 ## Skills
 
+- Visual Communication
+- Typography & Layout
+- Creative Problem-Solving
+- Attention to Detail
+- Organization & Time Management
+- Teamwork & Collaboration
 - Customer Service
 - Communication
-- Teamwork & Collaboration
-- Organization & Time Management
-- Adaptability
-- Positive Attitude & Strong Work Ethic
-- Basic Computer Skills
+
+---
+
+## Extracurricular
+
+### Humber Women's Soccer Team
+**Player | September 2025 – Present**
+
+### Vaughan Soccer Club
+**Soccer Player | 2012 – August 2026**
+
+- Developed leadership, teamwork, and communication skills
+- Worked effectively under pressure
+- Built strong time management and problem-solving skills
+
+---
 
 ## Achievements
 
-- Honour Roll, St. Elizabeth Catholic High School, 2022–2025
-- Ontario Scholar, 2025
-- Most Sportsmanship Player Award, Varsity Soccer, 2024
-- Honour Roll, Humber Polytechnic, 2025
-- All-Rookie Team, Humber Women's Varsity Soccer, 2025
+- **All-Rookie Team**, Humber Women's Varsity Soccer | 2025
+- **Honour Roll**, Humber Polytechnic | 2025
+- **Most Sportsmanship Player Award**, Varsity Soccer | 2024
+
+---
 
 ## References
 
