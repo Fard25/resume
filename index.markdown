@@ -2,9 +2,8 @@
 
 **Graphic Design Student | Creative & Detail-Oriented**
 
-[My Github Profile](https://github.com/Fard25/resume)
+### [My Github Profile](https://github.com/Fard25/resume)
 ---
-
 
 
 ## About Me
